@@ -1,4 +1,4 @@
-
+Enhance your Betternet experience with top Betternet Module | malware-blocker + VPN-over-TOR, the #1 module. Includes malware-blocker and VPN-over-TOR for a safer and more private
 
 
 
